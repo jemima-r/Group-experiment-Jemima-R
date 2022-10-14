@@ -1,1 +1,1 @@
-# Group-experiment-Jemima-R
+# Jemima-R STROOP group experiment
